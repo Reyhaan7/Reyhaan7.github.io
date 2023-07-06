@@ -1,3 +1,0 @@
-# Life goes on!
-
-It sure does go on! It’s like it never ends! The confusion I mean. More material now, more methods. more formula, more techniques! But it is exactly what I’d expected from this course and I like it! well, I don;t exactly enjoy when I face an error or can’t figure something out! But still … I know the main purpose of the course is to make us familiar with different tools we can use and benefit from in doing our work in Religious Studies and I’m getting to know tools! That’s something, right? I mean couple of errors here and there sometimes … well it’s part of the process! It gets even better when I start wroking with my own actual material! **Just be patient girl!**
